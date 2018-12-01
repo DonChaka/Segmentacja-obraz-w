@@ -1,0 +1,1 @@
+# Segmentacja-obraz-w
